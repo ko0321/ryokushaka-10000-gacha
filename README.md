@@ -1,1 +1,0 @@
-# ryokushaka-10000-gacha
